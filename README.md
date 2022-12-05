@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **baban510kumar@gmail.com**
 
-- ⚡ Fun fact **I think i am Funny**
+- ⚡ Fun fact **Muje Kudh Nahi pata **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
